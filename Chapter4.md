@@ -1,0 +1,3 @@
+#Capítulo 4
+
+The Flash é uma série de televisão americana de super-heróis desenvolvida por Greg Berlanti, Andrew Kreisberg e Geoff Johns, transmitida pela emissora The CW desde 7 de outubro de 2014, e estrelada por Grant Gustin. A série é baseada no personagem Barry Allen/Flash da DC Comics, um super-herói fantasiado que combate o crime com o seu poder de se mover em velocidades inacreditáveis. É uma série spin-off de Arrow e se passa no mesmo universo fictício conhecido como Universo Arrow.
